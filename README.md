@@ -27,4 +27,13 @@ Database- My SQL
 
 <img width="468" alt="image" src="https://github.com/user-attachments/assets/ed46c8dd-54f6-48f4-8dde-defa9c7a811e" />
 
+<img width="468" alt="image" src="https://github.com/user-attachments/assets/6bedd1b0-ae15-4e0b-9271-0a80faeed0f0" />
+
+
+<img width="468" alt="image" src="https://github.com/user-attachments/assets/e5efc048-ff43-4ce0-8c6f-c7b7ccb96231" />
+
+<img width="468" alt="image" src="https://github.com/user-attachments/assets/bd72ccd1-617b-4c72-84ef-5fda50c6e774" />
+
+
+
 
